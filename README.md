@@ -52,7 +52,7 @@ Disponibles dans le dossier `/documents`.
 ---
 
 ## 📩 Me contacter
-📧   **woly1.sarr@gmail.com**
+📧   woly1.sarr@gmail.com
 📍 Basée en France – **mobile sur tout le territoire**
 
 ---
